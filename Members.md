@@ -1,0 +1,11 @@
+**DIT /06 /M2 /1285 N.M. Aslam - Team Leader**
+
+DIT /06 /M2 /1259 M. N. W. S. Perera - Secretory
+
+DIT /06 /M2 /1288 A. F. M. Imran - Treasure
+
+DIT /06 /M2 /1277 T. N. Weerasooriya
+
+DIT /06 /M2 /1280 M. R. K. Gunawardhana
+
+DIT /06 /M2 /1267 G. S. Lawrence
